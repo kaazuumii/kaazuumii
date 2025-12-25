@@ -1,4 +1,5 @@
 ## ^_^
 
-<img width="1366" height="768" alt="Screenshot (227)" src="https://github.com/user-attachments/assets/3a546e02-c062-434d-8585-5eb31ab5ecde" />
+<img width="400" height="160" alt="divinder" src="https://github.com/user-attachments/assets/ae58a412-4ce4-41b6-a3ae-e732fbf284aa" />
+
 
